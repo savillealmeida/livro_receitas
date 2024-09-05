@@ -4,12 +4,15 @@ _italico_
 
 ###Ingradientes
  - 1 quilo de peito de frango sem pele
- - 1 tablete de caldo de galinha
+ - sal
+ - pimenta
  - 3 colheres de sopa de oleo
- - 2 latas de creme de leite sem soro
- - 2 colheres de sopa de molho de tomate
- - 2 colheres de sopa de ketchup
+ - 1 lata de creme de leite sem soro
+ - 5 colheres de sopa de molho de tomate
  - 2 colheres de sopa de mostarda
+ - coentro
+ - páprica
+ - sal
  - Champignon
  - Batata palha e arroz branco para acompanhar
 
